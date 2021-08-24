@@ -2,8 +2,8 @@
 
 # discord: 1214#4121
 
-# [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
-![](https://osu.ppy.sh/ss/16525543/bc8f)
+# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
+![](https://twelve14.s-ul.eu/OMkv0xB5)
 
 # [- colorbog(Woohoo Edition)](https://mega.nz/file/YeY2iRiJ#HAa1LmI1PI6fXyd-BoyLYYMJZD7dgnvVRdLYfvIi-cE) 
 ![](https://osu.ppy.sh/ss/16187051/4633)
