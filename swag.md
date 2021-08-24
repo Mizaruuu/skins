@@ -17,7 +17,7 @@
 # [Hana Ichinose](https://twelve14.s-ul.eu/HZVZ2Dpi)
 ![](https://twelve14.s-ul.eu/FFXhxANI)
 
-# [charlotte ava](https://twelve14.s-ul.eu/KequNAtV)
+# [charlotte ava](https://i.imgur.com/7SOkA0Y.jpeg)
 ![](https://osu.ppy.sh/ss/15975010/428c)
 
 # [cherry](https://twelve14.s-ul.eu/XWGkmq6i)
