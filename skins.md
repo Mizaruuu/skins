@@ -1,6 +1,6 @@
 # my skins
 
-# discord: 1214#4121
+# discord: twin stars#1214
 
 # [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
 ![](https://twelve14.s-ul.eu/OMkv0xB5)
