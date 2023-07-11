@@ -2,6 +2,8 @@
 
 # discord: twin stars#1214
 
+# [LEGACY]) 
+
 # [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
 ![](https://twelve14.s-ul.eu/OMkv0xB5)
 
