@@ -2,6 +2,22 @@
 
 # discord: twinstars
 
+# [tko elohere](https://twinstars.s-ul.eu/5tbX7hDP)
+![](https://i.imgur.com/AIs66Ib.jpeg)
+
+# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
+![](https://twelve14.s-ul.eu/OMkv0xB5)
+
+# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
+![](https://twelve14.s-ul.eu/OMkv0xB5)
+
+# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
+![](https://twelve14.s-ul.eu/OMkv0xB5)
+
+# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
+![](https://twelve14.s-ul.eu/OMkv0xB5)
+
+
 # old skins
 
 # [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
