@@ -1,4 +1,4 @@
-# my skins (last updated 7/11/23
+# my skins (last updated 7/11/23)
 
 # discord: twinstars
 
