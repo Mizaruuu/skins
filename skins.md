@@ -1,6 +1,6 @@
 # my skins
 
-# discord: twin stars#1214
+# discord: twinstars
 
 # old skins
 
