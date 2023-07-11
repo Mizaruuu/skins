@@ -1,22 +1,24 @@
-# my skins
+# my skins (last updated 7/11/23
 
 # discord: twinstars
 
 # [tko elohere](https://twinstars.s-ul.eu/5tbX7hDP)
 ![](https://i.imgur.com/AIs66Ib.jpeg)
 
-# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
-![](https://twelve14.s-ul.eu/OMkv0xB5)
+# [tko](https://twinstars.s-ul.eu/fXMMewyw)
+![](https://i.imgur.com/itnZXZr.jpeg)
 
-# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
-![](https://twelve14.s-ul.eu/OMkv0xB5)
+# [lowju](https://twinstars.s-ul.eu/52g7XZRP)
+![](https://i.imgur.com/r9wa21U.jpeg)
 
-# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
-![](https://twelve14.s-ul.eu/OMkv0xB5)
+# [ikanyai uberlegen mix](https://twinstars.s-ul.eu/lVIlkU9p)
+![](https://i.imgur.com/YEWXdel.jpeg)
 
-# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
-![](https://twelve14.s-ul.eu/OMkv0xB5)
+# [nakatsu shizuru](https://twinstars.s-ul.eu/Fz9zcHFP) 
+![](https://i.imgur.com/EKYzm19.jpeg)
 
+# [blue](https://twinstars.s-ul.eu/1SLIOWbv) 
+![](https://i.imgur.com/QOxI9HF.jpeg)
 
 # old skins
 
