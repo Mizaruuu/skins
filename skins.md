@@ -1,5 +1,5 @@
 # my skins (last updated 7/11/23)
-# NO LONGER UPDATING, SEE NEW SKINHUB ON MY [SITE](https://zenmoder.xyz/skins)
+# NO LONGER UPDATING, SEE NEW SKINHUB ON MY [SITE](https://zenmoder.lol/skins)
 
 # discord: twinstars
 
